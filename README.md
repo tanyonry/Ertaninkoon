@@ -1,2 +1,1 @@
-waktu yang singkat membuat kita menderita# Ertaninkoon
-Ertaninkoon 
+waktu yang singkat membuat kita menderit
